@@ -27,7 +27,7 @@
 
 ![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
 
-" Call us ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀 ![](https://komarev.com/ghpvc/?username=ryangoslingmoney&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
+" Call us ${\textsf{\color{#7400CA}Donnie}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀 ![](https://komarev.com/ghpvc/?username=ryangoslingmoney&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br><strong>Yes ik an endo AND trauma origin?! Don't believe me? Go ahead and ask. I'll dump ALL my trauma :)</strong> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> <strong><i>${\textsf{\color{#FFFF00}ALL}}$</i></strong>${\textsf{\color{#FFFF00}stated medical alliments have been}}$<i><strong>${\textsf{\color{#FFFF00}professionally diagnosed}}$</strong></i><br> </details>
@@ -79,22 +79,23 @@
 <details>
     <summary>${\textsf{\color{#46b7c2}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
-<img width="70" height="50" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
+<img width="60" height="40" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
 
-<img width="70" height="50" alt="image04" src="https://github.com/user-attachments/assets/089dff40-76d6-4b20-8e03-80b3440d3184" />
+<img width="60" height="40" alt="image04" src="https://github.com/user-attachments/assets/089dff40-76d6-4b20-8e03-80b3440d3184" />
+<img width="60" height="40" alt="Fictigender_flag" src="https://github.com/user-attachments/assets/3656fb98-0e51-4cc6-abea-1f37f3998f45" />
 
 
 
@@ -120,6 +121,8 @@
 **ฅ^-⩊-^ฅ** <sub>**10.** [`Indifferent Inclusionist`](https://lgbtqia.wiki/wiki/Inclusionist) `meaning i could not give less of a shit what you identify with. Its not my problem` <sub> 
 
 **▄︻デ══━一💥** <sub>**11.** [`Objectum`](https://objectuminfo.carrd.co/) `the attraction (of any kind) to inanimate objects.` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
+
+𐔌՞ ܸ.ˬ.ܸ՞3 <sub>**11.** [`Fictogender`](https://lgbtqia.wiki/wiki/Fictigender) `when one's gender is connected to or based on a work of fiction, a fictional character(s), a fictional species, or an object, setting, or concept from a work of fiction.` <sub> <img width="16" height="16" alt="tumblr_ac34f31218a3dfa8133575e98dde5d19_a2022184_250" src="https://github.com/user-attachments/assets/344f7f58-ee7a-4bd3-95ed-cc41046240d8" />
 
 </details>
 
