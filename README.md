@@ -206,6 +206,8 @@ drawn by: [prince/mars](https://github.com/ph1lz4)
 *`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`*
 ### ***ALL*** Valentino/ROTTMNT stamps below by me FTU wth CREDIT {lnk git}
 
+<img width="269" height="292" alt="ezgif com-overlay" src="https://github.com/user-attachments/assets/319f6fe5-384f-4a3b-8b1a-67b1cadcbf60" />  
+
 <br> <img width="246" height="155" alt="ezgif com-crop" src="https://github.com/user-attachments/assets/50a72019-5e17-4ce0-af47-1abf7137661c" />
 <img width="246" height="155" alt="ezgif com-crop (1)" src="https://github.com/user-attachments/assets/8099905b-da48-48fa-a5a9-c788e2e0c654" />
 <img width="246" height="155" alt="ezgif com-crop (2)" src="https://github.com/user-attachments/assets/73c1ecbc-fcb2-400b-8f8a-591868e4debe" /> </br>
