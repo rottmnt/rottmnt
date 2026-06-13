@@ -86,7 +86,7 @@
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="60" height="40" alt="tumblr_ntwegnrx5J1ttq5l9o1_1280" src="https://github.com/user-attachments/assets/a6e497f7-d518-4a88-8a20-f41121118c72" />
 
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
@@ -95,7 +95,7 @@
 <img width="60" height="40" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
 
 <img width="60" height="40" alt="image04" src="https://github.com/user-attachments/assets/089dff40-76d6-4b20-8e03-80b3440d3184" />
-<img width="60" height="40" alt="Fictigender_flag" src="https://github.com/user-attachments/assets/3656fb98-0e51-4cc6-abea-1f37f3998f45" />
+<img width="60" height="40" alt="Fictigender_flag" src="https://github.com/user-attachments/assets/0a1bcb2b-e533-43cd-a7bf-453f3c3322bd" />
 
 
 
@@ -110,7 +110,7 @@
 
 **✾(〜 ☌ω☌)〜✾** <sub>**5.** [`Upisexual`](https://lgbtqia.wiki/wiki/Upisexual) `is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
 
-**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
+**(≧ω≦)/** <sub>**6.** `Schizogender when your gender being a boy is affected by your schizophrenia` <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
 
 **(๑'^'๑)︻デ═一** <sub>**7.** [`Autonecrophilia`](https://dictionary.apa.org/autonecrophilia) `is attraction to someone else having sex with oneself as a` ~~`dead`~~ `body`<sub> <a href="https://ibb.co/0VJVYQFF"><img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0"></a>
 
@@ -118,7 +118,7 @@
 
 **◝(¬_¬")◜** <sub>**9.** [`Hybristophilia`](https://dictionary.apa.org/hybristophilia) `is attraction to` `criminals` ~~`murderers`~~ <sub> <a href="https://ibb.co/21Y2MRTS"><img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0"></a>
 
-**ฅ^-⩊-^ฅ** <sub>**10.** [`Indifferent Inclusionist`](https://lgbtqia.wiki/wiki/Inclusionist) `meaning i could not give less of a shit what you identify with. Its not my problem` <sub> 
+**ฅ^-⩊-^ฅ** <sub>**10.** [`Indifferent Inclusionist`](https://lgbtqia.wiki/wiki/Inclusionist) `meaning i could not give less of a shit what you identify with. Its not my problem` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
 
 **▄︻デ══━一💥** <sub>**11.** [`Objectum`](https://objectuminfo.carrd.co/) `the attraction (of any kind) to inanimate objects.` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
 
